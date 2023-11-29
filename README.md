@@ -1,4 +1,5 @@
-![rkz](https://github.com/DevRKZ/DevRKZ/assets/152344412/1f095dd5-0e95-4609-9a13-f78374cedb39)
+![sev7n](https://github.com/DevRKZ/DevRKZ/assets/152344412/9a5e9c22-bddc-4846-9dac-e79d22c24aa2)
+
 
 
 - 👋 Hyo, im RKZ
