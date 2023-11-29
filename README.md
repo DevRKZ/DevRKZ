@@ -1,4 +1,5 @@
-![githud](https://github.com/DevRKZ/DevRKZ/assets/152344412/abf2246d-b6c2-418a-a954-8428356f41cf)
+![rkz](https://github.com/DevRKZ/DevRKZ/assets/152344412/1f095dd5-0e95-4609-9a13-f78374cedb39)
+
 
 - 👋 Hyo, im RKZ
 - 👨‍💻 UI/UX Desginer
